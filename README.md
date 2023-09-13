@@ -1,3 +1,0 @@
-# myjlcmaster
-# atharv
-# atharv
